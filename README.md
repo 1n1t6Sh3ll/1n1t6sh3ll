@@ -5,8 +5,8 @@ My Resolutions for 2022 are:
 * No Hates and rages 
 * To improve and remove my weakness
 * More bounties
-* Work Hard with smart work 
-* Also Last, Give my best at every Place
+* HardWork  with SmartWork 
+* Also one more Last 🤏, Give my best at every Place
 
 
 - 🔭 I’m currently working on Reverse Engineering, Automation in BB and B3ing b3tt3r Hum4n.
