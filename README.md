@@ -1,5 +1,11 @@
 ### Hi there 👋
 
+My Resolutions 2022 is 
+* To be the best
+* No Hates and rages 
+* To improve and remove my weakness
+* More bounties
+* Work Hard with smart work 
 <!--
 **hacknologist/hacknologist** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
