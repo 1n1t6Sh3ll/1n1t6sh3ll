@@ -1,11 +1,15 @@
 ### Hi there 👋
 
-My Resolutions 2022 is 
+My Resolutions for 2022 are:
 * To be the best
 * No Hates and rages 
 * To improve and remove my weakness
 * More bounties
 * Work Hard with smart work 
+* Also Last, Give my best at every Place
+
+
+- 🔭 I’m currently working on Reverse Engineering, Automation in BB and B3ing b3tt3r Hum4n.
 <!--
 **hacknologist/hacknologist** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
